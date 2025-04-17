@@ -1,4 +1,10 @@
 QUE LO Q MI LOCO
 
-#INJfo
+#info
 -YOP
+
+
+CHAPTE 2:
+
+2.3
+-> Soy pro mira bor.
